@@ -3,7 +3,7 @@
 
 #internship #datascience #gripjuly21 #thesparksfoundation
   
-</b>.
+</b>
 <br>Please drop a message on my social handles if you have any queries or any suggestions. 
 Visit:
 <a href="https://sachetutekar.wixsite.com/website"> Sachet_Utekar</a>
